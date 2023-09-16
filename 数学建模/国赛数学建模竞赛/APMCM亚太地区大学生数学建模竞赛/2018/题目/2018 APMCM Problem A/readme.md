@@ -1,1 +1,0 @@
-2018 APMCM Problem A
